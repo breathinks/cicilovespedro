@@ -1,2 +1,2 @@
 # WeLoveMacco
-50 Razões para amarmos o Macco
+30 Razões para amarmos o Macco
